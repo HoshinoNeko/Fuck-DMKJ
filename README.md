@@ -1,0 +1,2 @@
+# Fuck-DMKJ
+Fuck DaoMengKongJian
